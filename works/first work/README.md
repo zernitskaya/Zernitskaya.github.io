@@ -1,1 +1,0 @@
-# zernitskaya.github.io
